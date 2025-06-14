@@ -63,4 +63,15 @@
 
 ![6181698652372845571](https://github.com/user-attachments/assets/7643d1ce-0f89-48c4-a94e-f8fa1bf29fde)
 
+**17.**
+
+![6181698652372845576](https://github.com/user-attachments/assets/eebbefd9-dea1-4f01-bdc8-801a30cbc977)
+
+**18.**
+
+![6181698652372845579](https://github.com/user-attachments/assets/bc13e27c-912e-45c6-8c1e-c55c29fcd264)
+
+**19.**
+
+![6181698652372845581](https://github.com/user-attachments/assets/bd3d6e49-e9f2-4a46-95be-22b0f796711e)
 
